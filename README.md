@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Lakshmi. 
-- 👀 I’m interested in Data Driven work.
+- 👀 Passionate for Data Driven work.
 -  Base & Advance SAS Course.
 -  Pursuing Full Stack Data Analyst From ![download](https://github.com/Lakshmi512/Lakshmi512/assets/108252202/556f7ce3-4386-4e9a-a05d-d8a8ae5c5675)
 
